@@ -11,34 +11,34 @@
 
 ![](https://raw.githubusercontent.com/175B005/direction_rink/master/noximage1.png)
 
-![](https://raw.githubusercontent.com/175B005/direction_rink/master/noximage2.png)
+![](https://raw.githubusercontent.com/175B005/direction_rink/master/noximage2.jpg)
 
-![](https://raw.githubusercontent.com/175B005/direction_rink/master/noximage3.png)
+![](https://raw.githubusercontent.com/175B005/direction_rink/master/noximage3.jpg)
 
-![](https://raw.githubusercontent.com/175B005/direction_rink/master/noximage4.png)
+![](https://raw.githubusercontent.com/175B005/direction_rink/master/noximage4.jpg)
 
-![](https://raw.githubusercontent.com/175B005/direction_rink/master/noximage5.png)
+![](https://raw.githubusercontent.com/175B005/direction_rink/master/noximage5.jpg)
 
-![](https://raw.githubusercontent.com/175B005/direction_rink/master/noximage6.png)
+![](https://raw.githubusercontent.com/175B005/direction_rink/master/noximage6.jpg)
 
-![](https://raw.githubusercontent.com/175B005/direction_rink/master/noximage7.png)
+![](https://raw.githubusercontent.com/175B005/direction_rink/master/noximage7.jpg)
 
-![](https://raw.githubusercontent.com/175B005/direction_rink/master/noximage8.png)
+![](https://raw.githubusercontent.com/175B005/direction_rink/master/noximage8.jpg)
 
-![](https://raw.githubusercontent.com/175B005/direction_rink/master/noximage9.png)
+![](https://raw.githubusercontent.com/175B005/direction_rink/master/noximage9.jpg)
 
-![](https://raw.githubusercontent.com/175B005/direction_rink/master/noximage10.png)
+![](https://raw.githubusercontent.com/175B005/direction_rink/master/noximage10.jpg)
 
-![](https://raw.githubusercontent.com/175B005/direction_rink/master/noximage12.png)
+![](https://raw.githubusercontent.com/175B005/direction_rink/master/noximage12.jpg)
 
-![](https://raw.githubusercontent.com/175B005/direction_rink/master/noximage13.png)
+![](https://raw.githubusercontent.com/175B005/direction_rink/master/noximage13.jpg)
 
-![](https://raw.githubusercontent.com/175B005/direction_rink/master/noximage14.png)
+![](https://raw.githubusercontent.com/175B005/direction_rink/master/noximage14.jpg)
 
-![](https://raw.githubusercontent.com/175B005/direction_rink/master/noximage15.png)
+![](https://raw.githubusercontent.com/175B005/direction_rink/master/noximage15.jpg)
 
-![](https://raw.githubusercontent.com/175B005/direction_rink/master/noximage16.png)
+![](https://raw.githubusercontent.com/175B005/direction_rink/master/noximage16.jpg)
 
-![](https://raw.githubusercontent.com/175B005/direction_rink/master/noximage17.png)
+![](https://raw.githubusercontent.com/175B005/direction_rink/master/noximage17.jpg)
 
-![](https://raw.githubusercontent.com/175B005/direction_rink/master/noximage18.png)
+![](https://raw.githubusercontent.com/175B005/direction_rink/master/noximage18.jpg)
